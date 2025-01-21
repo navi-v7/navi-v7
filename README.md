@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @navi-v7
-- 👀 I'm currently learning CS and this account is just for my personal growth! Ok byeee
+- 👀 I'm currently learning CS and this account is just for my personal growth! 
 
 
 <!---
